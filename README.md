@@ -1,4 +1,4 @@
-![my header lol](https://tenor.com/view/cybercore-y2k-blue-aesthetic-jellyfish-gif-17437265700788254408?utm_source=share-button&utm_medium=Social&utm_content=pinterest)
+![my header lol](https://i.pinimg.com/originals/0a/0a/5e/0a0a5e1b7108a298197acf2ce4250ded.gif)
 # irene's README
 ## studying cse @ **uci**  
 
